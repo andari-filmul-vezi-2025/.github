@@ -10,7 +10,7 @@ Urmăriți filmul Țăndări Online Gratis Subtitrate in Romana, Filme Noi HD,Ț
 
 Urmărește Țăndări Delir în doi 2025 Online Subtitrat in Română la înaltă deiniție și la calitate 720p, ull HD 1080p, Ultra HD 4K!
 
-Țăndări[2025] Film Online Subtitrat in Romana HD 1080p
+Țăndări [2025] Film Online Subtitrat in Romana HD 1080p
 
 Publicat: 2025-12-11
 
@@ -20,4 +20,4 @@ Gen: Dramă, Crimă, Thriller
 
 Distribuție: Joaquin Phoenix, Lady Gaga, Brendan Gleeson, Catherine Keener, Zazie Beetz, Steve Coogan 
 
-Țăndări( 2025) este un Comedie film regizat de Cosmin Nedelcu și jucat de Șerban Pavlu, Matei Dima. O comedie spumoasă despre viața în corporație, despre provocările construirii unei cariere și cele ale consolidării și motivării unei echipe. Filmul, o satiră a vieții corporative, dezvăluie evenimentele unui team building în care corporativismul robotic se dezlănțuie și se dezlănțuie arătându-și latura umană.
+Țăndări(2025) este un Comedie film regizat de Cosmin Nedelcu și jucat de Șerban Pavlu, Matei Dima. O comedie spumoasă despre viața în corporație, despre provocările construirii unei cariere și cele ale consolidării și motivării unei echipe. Filmul, o satiră a vieții corporative, dezvăluie evenimentele unui team building în care corporativismul robotic se dezlănțuie și se dezlănțuie arătându-și latura umană.
